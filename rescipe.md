@@ -1,0 +1,1 @@
+This easy (one-bowl!) Eggless Chocolate Cake is a simple vegan recipe you’re sure to come back to time and again. Unbelievably soft and light, you won’t believe that this decadent, chocolatey sponge cake is actually made with healthy whole wheat flour.
